@@ -14,7 +14,7 @@
 
 - ⚡ Fun fact **I am Funny**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me: 01623284090</h3>
 <p align="left">
 </p>
 
